@@ -68,24 +68,12 @@ https://www.youtube.com/watch?v=LteRFqS1ZrU
 
 > Por quê? Porque automaticamente todo ano você precisa ter uma correção no seu salário. Se assina o salário mínimo porque não seria diferente para as demais carreiras. 
 
+# Outros Videos
 
+[18/04/2024 - Video : Greve de servidores fragiliza ministra do MGI - Greve no Brasil por recomposição!](https://www.youtube.com/watch?v=cK-jUjhLfCE)
 
+[18/04/2024 - Video : Reinaldo: Invasões do MST, greve de professores e esquerda dando tiro no pé. Extrema-direita vibra](https://www.youtube.com/watch?v=_3OZyCwBaXk)
 
-# Videos
+[18/04/2024 - Video: Eliane: Professores fazem greve por salários, mas PEC que aumenta privilégios do Judiciário avança](https://www.youtube.com/watch?v=WYsyRnPcias)
 
-[ Roda de Conversa com Deputado Tadeu Veneri: desdobramentos da greve da educação federal](https://www.youtube.com/watch?v=6dU2AsCxq_o)
-
-[Greve de servidores fragiliza ministra do MGI - Greve no Brasil por recomposição!](https://www.youtube.com/watch?v=cK-jUjhLfCE)
-
-[Governo deve reservar R$ 8 bilhões para reajustes dos servidores em 2025 - Halving do BTC dia 19/04](https://www.youtube.com/watch?v=LteRFqS1ZrU)
-
-[Reinaldo: Invasões do MST, greve de professores e esquerda dando tiro no pé. Extrema-direita vibra](https://www.youtube.com/watch?v=_3OZyCwBaXk)
-
-[Eliane: Professores fazem greve por salários, mas PEC que aumenta privilégios do Judiciário avança](https://www.youtube.com/watch?v=WYsyRnPcias)
-
----
-
-
-
-
-
+[19/04/2024 - Video : Roda de Conversa com Deputado Tadeu Veneri: desdobramentos da greve da educação federal](https://www.youtube.com/watch?v=6dU2AsCxq_o)
