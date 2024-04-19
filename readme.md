@@ -44,6 +44,10 @@ https://xvcuritiba.com.br/servidores-federais-em-greve-mobilizam-ato-na-praca-sa
 
 https://g1.globo.com/politica/noticia/2024/04/17/ccj-do-senado-aprova-pec-criticada-pelo-governo-que-turbina-salarios-de-juizes-e-promotores.ghtml
 
+> O texto, que seguirá para análise do plenário, turbina o salário de juízes e promotores até o limite de 35% da remuneração do servidor. 
+
+> O senador disse haver um estudo que indica que o impacto dos benefícios previstos na proposta pode ser de cerca de R$ 42 bilhões por ano.
+
 ## 18/04/2024 - Video - Governo deve reservar R$ 8 bilhões para reajustes dos servidores em 2025
 
 https://www.youtube.com/watch?v=LteRFqS1ZrU
