@@ -40,13 +40,33 @@ https://xvcuritiba.com.br/servidores-federais-em-greve-mobilizam-ato-na-praca-sa
 
 > Na manhã desta quinta-feira, a Praça Santos Andrade, situada no coração de Curitiba, foi palco de um significativo ato unificado de greve, envolvendo membros do Sinditest-PR, da APUFPR e estudantes da Universidade Federal do Paraná (UFPR). O protesto faz parte de uma série de ações que estão sendo organizadas em todo o país, visando a melhoria dos serviços e incremento dos orçamentos destinados à educação federal.
 
-## 17/04/2024 - Notícia - CCJ do Senado aprova PEC criticada pelo governo que turbina salários de juízes e promotores
+## 17/04/2024 - Notícia : CCJ do Senado aprova PEC criticada pelo governo que turbina salários de juízes e promotores
 
 https://g1.globo.com/politica/noticia/2024/04/17/ccj-do-senado-aprova-pec-criticada-pelo-governo-que-turbina-salarios-de-juizes-e-promotores.ghtml
 
 > O texto, que seguirá para análise do plenário, turbina o salário de juízes e promotores até o limite de 35% da remuneração do servidor. 
 
 > O senador disse haver um estudo que indica que o impacto dos benefícios previstos na proposta pode ser de cerca de R$ 42 bilhões por ano.
+
+## 17/04/2024 - Video : 
+
+https://www.youtube.com/watch?v=V7sGmTyhL4w&t=19m
+
+![Rui Costa](https://img.youtube.com/vi/V7sGmTyhL4w/1.jpg)
+
+> Eu queria destacar é importante  o ato realizado hoje em Brasília, em que os  servidores das universidades e institutos  federais realizaram um protesto muito,  muito significativo, num momento em que  há uma dor, uma situação de paralisia  do movimento sindical, mas em meio à greve que já atinge mais de 50 universidades e  mais de 80 institutos federais de  educação, os servidores desse setor  juntamente com trabalhadores também servidores federais de outras categorias na Esplanada dos  Ministérios, realizaram uma manifestação  estimada com mais de 5 mil trabalhadores. 
+
+> Isso sinaliza uma tendência de luta presente no movimento, no movimento sindical, no movimento dos  trabalhadores, e acontece justamente na  semana em que o ministro da Fazenda,  Fernando Haddad, veio a público, infelizmente, contrariando a expectativa dos servidores e dos trabalhadores que  votaram no Lula, justamente para enfrentar um dos problemas centrais da  classe trabalhadora, que é a política de desprezo salarial, de roubo, de expropriação dos salários realizadas pelos governos do  Temer e do Bolsonaro, o Fernando Haddad reafirmou a política que vem sendo defendido pela área econômica, que é a política da direita, de manter o salário dos servidores congelados. 
+
+> O governo anunciou, em reunião com os representantes dos servidores, que vai estabelecer 60 meses de negociação, é uma política, inclusive, de divisão dos servidores, não tem uma mesa única, porque o governo quer negociar fatiado essa ala do governo para enfraquecer a mobilização dos servidores. 
+
+> Antes do Haddad se pronunciar, o próprio presidente Lula, se referindo à greve dos servidores, disse que reconhecia a greve como um direito, ele era uma pessoa de origem no movimento sindical, não podia se manifestar de maneira diferente, mas houve insinuações de que o governo não iria negociar com setores em greve, também uma política tipicamente neoliberal, e a proposta que o governo apresentou foi negociar, nessas 60 mesas, uma proposta de fatiar o reajuste, e a proposta que já foi apresentada, inclusive, aos técnicos administrativos que estão em greve, foram, são a ponta de lança que iniciaram a paralisação da universidade, reajuste de 4,5%, mas sabe, companheiros da audiência, só em 2025 e 2026, 4,5%, 4,5%. 
+
+> Isso quando os servidores têm perdas acumuladas de mais de 20%, impostas pelos governos anteriores, e é um absurdo, é a política do déficit zero, as custas de esfolar os trabalhadores, esfolar os servidores públicos, ninguém estabelece juros zero, por  exemplo, o governo não pensa, não se discute, não mobiliza para cortar o dinheiro dos bancos, que são verdadeiros abutres, sanguessugas do recurso do  orçamento público, né, que levam aí centenas de milhões todos os anos, sem fazer nenhum esforço, sem produzir absolutamente nada de positivo para o país. Por último,  só para destacar, que essa política é uma política kamikaze do governo, é a política de se chocar com o setor, e foi importante no apoio ao Lula, é para queimar a base, é para queimar o próprio governo Lula com o setor que lhe apoiou na expectativa de que houvesse uma mudança. O governo no ano passado ofereceu, deu um reajuste de 9%, deu sinal de que ia introduzir uma política de recuperação, mas nesse ano, pressionado pela direita, puxou o freio de mão e tá tentando estabelecer uma política de garrote nos servidores. 
+
+> É preciso que a CUT, que os sindicatos chamem a unificação desse movimento necessário, uma greve ampla geral dos servidores, contra a política que, repito, é uma política da direita, dos setores neoliberais, de esfolarem os servidores públicos, de cortar na carne daqueles que trabalham para oferecer o  sacrifício em favor dos banqueiros e das suas máfias políticas, que estão avançando exigências cada vez maiores.
+
+
 
 ## 18/04/2024 - Video - Governo deve reservar R$ 8 bilhões para reajustes dos servidores em 2025
 
@@ -77,3 +97,5 @@ https://www.youtube.com/watch?v=LteRFqS1ZrU
 [18/04/2024 - Video: Eliane: Professores fazem greve por salários, mas PEC que aumenta privilégios do Judiciário avança](https://www.youtube.com/watch?v=WYsyRnPcias)
 
 [19/04/2024 - Video : Roda de Conversa com Deputado Tadeu Veneri: desdobramentos da greve da educação federal](https://www.youtube.com/watch?v=6dU2AsCxq_o)
+
+[19/04/2024 - Video :  CENTRAL DA GREVE - Mesa de Negociação Específica 19/04 - MEC](https://www.youtube.com/watch?v=2qKMZhwkLeU)
