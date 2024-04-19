@@ -48,7 +48,7 @@ https://g1.globo.com/politica/noticia/2024/04/17/ccj-do-senado-aprova-pec-critic
 
 > O senador disse haver um estudo que indica que o impacto dos benefícios previstos na proposta pode ser de cerca de R$ 42 bilhões por ano.
 
-## 17/04/2024 - Video : 
+## 17/04/2024 - Video : Importante Ato realizado hoje em Brasília
 
 https://www.youtube.com/watch?v=V7sGmTyhL4w&t=19m
 
